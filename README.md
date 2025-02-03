@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... ShalaRhea@Gmail.com
 - 😄 Pronouns: ... She/Her
-- ⚡ Fun fact: ... I enjoy the outdoors and being out on the water.
+- ⚡ Fun fact: ...Outside of work and studies, I enjoy spending time in the outdoors, giving back to my community, and challenging myself through powerlifting and dragon boating. 
 
 <!---
 SGRhea/SGRhea is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
